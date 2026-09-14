@@ -2,7 +2,9 @@
 
 準備中
 📱X : https://x.com/GURIRU_GC
+
 ✉️メール : gurirudev@gmail.com
+
 🎮unityroom : https://unityroom.com/users/gvqb9ts23we7p1f4zaj0
 
 <!--
