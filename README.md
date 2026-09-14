@@ -1,6 +1,7 @@
 ## Hi there 👋
 
 準備中
+
 📱X : https://x.com/GURIRU_GC
 
 ✉️メール : gurirudev@gmail.com
